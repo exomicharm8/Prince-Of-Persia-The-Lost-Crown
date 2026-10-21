@@ -243,4 +243,4 @@ Prince of Persia: The Lost Crown is offered as a full free version, ensuring all
 Experience the thrill of Prince of Persia: The Lost Crown today! Click the download button now and embark on your adventure!
 
 ---
-**Last updated:** 2026-10-21 09:54:32 UTC
+**Last updated:** 2026-10-21 14:58:16 UTC
